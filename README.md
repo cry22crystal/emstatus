@@ -7,7 +7,7 @@
 
 Удачи.
 
-\\\
+*
 vk.com/cry.crystal
-\\\
+*
 t.me/cry_crystal
